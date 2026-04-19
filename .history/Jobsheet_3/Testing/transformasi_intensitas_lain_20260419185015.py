@@ -1,0 +1,1 @@
+Transformasi Intensitas Lain
